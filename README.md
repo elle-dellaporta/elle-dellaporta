@@ -4,7 +4,7 @@
 - 🤝 I’m looking to collaborate on all sorts of documentation and training projects, large and small.
 - 📫 Send me a message at lisa.dellaporta@gmail.com.
   
-  ![It's my face](https://postcovidkitchen.wordpress.com/wp-content/uploads/2024/05/c3002007-f7e3-4a8b-b816-cf8d8e468744.png)
+  ![A simple philosophy](https://ifbyyes.wordpress.com/wp-content/uploads/2015/06/write-all-the-things.jpg?w=300)
 
 <!---
 elle-dellaporta/elle-dellaporta is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
